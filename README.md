@@ -8,7 +8,7 @@
  + scary looking ponies (with big toothed mouths made of bandana item, for example),
  + ones who boop at the first sight. i dont really get it!... when i dont know you and suddenly you come out of nowhere to poke me - i get confused with implications behind your gesture and because of that nervous and uncomfortable. especially when you don't stop after i asked you to :( . you can ask me though, if you want to pat me that much!!
 
- that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat.
+ that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat. ^_^"
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 - ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me.

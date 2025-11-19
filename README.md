@@ -4,7 +4,9 @@
 
  i'm a person what likes socialising and making some new contacts, but it may be really hard for me to find that first spark. 
 
- despite myself trying to be polite and everything, i'm also easy to startle at first. as my DNI i can say what those are scary looking ponies (with big toothed mouths made of bandana item, for example),
+ despite myself trying to be polite and everything, i'm also easy to startle at first. as my DNI i can mark:
+ + scary looking ponies (with big toothed mouths made of bandana item, for example),
+ + ones who boop at the first sight. i get it, you want to get my attention, or just touch me. but when i dont know you and suddenly you come to poke me - i get nervous :( . you can ask me though, if you want to pat me that much!!
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 - ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me.

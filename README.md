@@ -6,11 +6,11 @@
  
  mostly sitting in one location with someone i know, but C+H is encouraged, if i'm being alone at the moment! anyways feel free to talk to me, just know what i can be vague at first! nonetheless i still will be trying to stay friendly and willing to help, even if all i can do is to offer my presence and listening ear! ^_^
 
- despite myself trying to be polite and everything, i'm also easy to startle at first. as my DNI i can mark:
+ despite myself trying to be polite and everything, i'm also easy to scare at first. as my DNI i can mark:
  + scary looking ponies (with big toothed mouths made of bandana item, for example),
  + ones who boop at the first sight. i dont really get it!... when i dont know you and suddenly you come out of nowhere to poke me - i get confused with implications behind your gesture and because of that nervous and uncomfortable. especially when you don't stop after i asked you to :( . you can ask me though, if you want to pat me that much!!
 
- that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat. ^_^"
+ that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat.. ^_^"
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 - ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me.
@@ -20,3 +20,16 @@
 - ! I TEND TO OVERTHINK GREATLY ! - as i said in upper line, i have such problem. i sometimes can misundertand your actions and overthink because of that. i can't help it, i'm just starting to doubt and blame myself, trying to understand what has happened, and usually from my experience - it irritates people. i'm sorry, be patient with me!
 
 ---- FANDOMS I'M IN
+- The Mandela Catalogue (INT WITH ME ABOUIT IT PLEASE!! IT IS CURRENTLY MY FAVORITE ONE! ^_^ )
+- Happy world with happy people
+- Forsaken
+- Dandy's World
+- Cookie Run Kingdom
+- Boyfriend to death ( 1, 2 )
+- The summer Hikaru died
+- Honkai: Star Rail
+- Bloodmoney
+- Mouthwashing
+- Doki Doki Literature Club
+
+ and MAAAANY more, those are just ones im most active in!

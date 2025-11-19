@@ -6,7 +6,7 @@
 
  despite myself trying to be polite and everything, i'm also easy to startle at first. as my DNI i can mark:
  + scary looking ponies (with big toothed mouths made of bandana item, for example),
- + ones who boop at the first sight. i get it, you want to get my attention, or just touch me. but when i dont know you and suddenly you come to poke me - i get nervous :( . you can ask me though, if you want to pat me that much!!
+ + ones who boop at the first sight. i dont really get it!... when i dont know you and suddenly you come out of nowhere to poke me - i get confused with implications behind your gesture and because of that nervous and uncomfortable. especially when you don't stop after i asked you to :( . you can ask me though, if you want to pat me that much!!
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 - ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me.

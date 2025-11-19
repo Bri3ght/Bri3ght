@@ -1,4 +1,4 @@
-## Hi there 👋
+## Welcome! ^_^
 
 <!--
 **Bri3ght/Bri3ght** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

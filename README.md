@@ -22,9 +22,22 @@
 
 - ! I TEND TO OVERTHINK GREATLY ! - as i said in upper line, i have such problem. i sometimes can misundertand your actions and overthink because of that. i can't help it, i'm just starting to doubt and blame myself, trying to understand what has happened, and usually from my experience - it irritates people. overthinking is wearing me down mentally really much!.. i'm sorry, be patient with me!
 
+---- PONIES!!!
+
+i like to show my mood though some of my ponies! this isn't a system, i just share how i feel at the moment by the pony i use!
+- Thomas (HWWHP) - i'm feeling down or sad. don't let the face fool you.
+- Skittles/Soren (HWWHP) - i'm irritated and/or angry at the moment. REALLY angry, i mean it.
+- Gabriel (TMC) - neutral! if face is hidden - i'm not in the chat with anyone currently, closed off. but if open means im ingaged in some dialog and open to talk! ^_^
+- Adam (TMC) - probably feeling tired and don't really want to chat at the moment.
+- Shedletsky (FS) - feeling good and do want others to sit with me, no matter if we know each other or not!
+- Mangosteen - i show what i seek comfort or already comfortable at the moment! though i'm not talkative when using this!!
+- Aventurine (HSR) - confident and usually in a good mood, only if mouth is present on the pony. when it's not - i'm feeling bad and don't even want to chat about by problems, just maybe seek any company only to sit with.
+
+other ponies i use are hiding no real, serious meaning as ones i noted here! the emotions there may be anything. the only thing what is not changing is IWEC factor. ^_^
+
 ---- FANDOMS I'M IN
 - The Mandela Catalogue (INT WITH ME ABOUIT IT PLEASE!! IT IS CURRENTLY MY FAVORITE ONE! ^_^ )
-- Happy world with happy people
+- Happy World With Happy People
 - Forsaken
 - Dandy's World
 - Cookie Run Kingdom

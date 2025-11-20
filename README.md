@@ -49,7 +49,7 @@ other ponies i use are hiding no real, serious meaning as ones i noted here! the
 - Doki Doki Literature Club
 - Murder Drones
 
- and MAAAANY more, those are just ones im most active in! you can ask me for yours, if interested!!
+ and MAAAANY more, those are just ones i'm most active in! you can ask me for yours, if interested!!
 
  
 

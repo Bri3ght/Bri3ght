@@ -2,7 +2,7 @@
 
 ---- ABOUT ME
 
- i fictkin Thomas from HWWHP because i share most of qualities with him. also that's why i'm known as Thomas around my acquantances! i also identify myself as genderfluid, with no real preferrence. you may use any pronouns what feel more right towards me! 
+ i fictkin Thomas from HWWHP because i share most of qualities with him. also that's why i'm known as Thomas around my acquantances! ( i'm NOT comfortable sharing my real name. ) i also identify myself as genderfluid, with no real preferrence. you may use any pronouns what feel more right towards me! 
 
  i'm a person what likes socialising and making some new contacts, but it may be really hard for me to find that first spark. 
  
@@ -51,4 +51,6 @@ other ponies i use are hiding no real, serious meaning as ones i noted here! the
 
  and MAAAANY more, those are just ones im most active in! you can ask me for yours, if interested!!
 
- thank you so much for reading this fully! have a nice time!! ^_^
+ 
+
+## thats all!! thank you so much for reading this fully! have a nice time!! ^_^ 

@@ -16,7 +16,7 @@
  that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat.. ^_^"
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
-- ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me. i'm just dependent person what desperately tries to save any connection with others i liked. if you ever choose to leave me, just tell me, and i'll understand, but if you don't, i may start this clinging thing again. :(
+- ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me. i'm just dependent person what desperately tries to save any connection with others i liked. if you ever choose to leave me, just tell me, and i'll understand. i don't have problems with letting go when i know why person chose to abandon me. but if you don't tell me, i may start this clinging thing again. :(
 
 - ! I DON'T UNDERSTAND ACTIONS ! - no matter how many times i tried, i came to underdstand in the end, what i can't understand those. if youre offended, angry at me, if i did something wrong, please, tell me directly, or at least hint with words! because whenether you just block me i start to blame myself heavily, doubting all my said words and taken actions, even if you just ignored me because of being in bad mood. i'm an understanding person and shall you just say what you're not in the mood for chatting - its fine, i'll leave you alone. please, just communicate with me. i hate overthinking ^_^"
 

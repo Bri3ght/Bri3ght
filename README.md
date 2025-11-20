@@ -2,6 +2,8 @@
 
 ---- ABOUT ME
 
+ i fictkin Thomas from HWWHP because i share most of qualities with him. also that's why i'm known as Thomas around my acquantances! i'm also identify myself as genderfluid, with no real preferrence. you may use any pronouns what feel more right towards me! 
+
  i'm a person what likes socialising and making some new contacts, but it may be really hard for me to find that first spark. 
  
  mostly sitting in one location with someone i know, but C+H is encouraged, if i'm being alone at the moment! anyways feel free to talk to me, just know what i can be vague at first! nonetheless i still will be trying to stay friendly and willing to help, even if all i can do is to offer my presence and listening ear! ^_^
@@ -9,6 +11,7 @@
  despite myself trying to be polite and everything, i'm also easy to scare at first. as my DNI i can mark:
  + scary looking ponies (with big toothed mouths made of bandana item, for example),
  + ones who boop at the first sight. i dont really get it!... when i dont know you and suddenly you come out of nowhere to poke me - i get confused with implications behind your gesture and because of that nervous and uncomfortable. especially when you don't stop after i asked you to :( . you can ask me though, if you want to pat me that much!!
+ + pedo*, zoo* and others alike + ones who would seek to make some romance with me - i'm not looking for anyone who would want more than a friendship with me. no, ty!...  *  - i do not support such.
 
  that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat.. ^_^"
 
@@ -17,7 +20,7 @@
 
 - ! I DON'T UNDERSTAND ACTIONS ! - no matter how many times i tried, i came to underdstand in the end, what i can't understand those. if youre offended, angry at me, if i did something wrong, please, tell me directly, or at least hint with words! because whenether you just block me i start to blame myself heavily, doubting all my said words and taken actions, even if you just ignored me because of being in bad mood. i'm an understanding person and shall you just say what you're not in the mood for chatting - its fine, i'll leave you alone. please, just communicate with me. i hate overthinking ^_^"
 
-- ! I TEND TO OVERTHINK GREATLY ! - as i said in upper line, i have such problem. i sometimes can misundertand your actions and overthink because of that. i can't help it, i'm just starting to doubt and blame myself, trying to understand what has happened, and usually from my experience - it irritates people. i'm sorry, be patient with me!
+- ! I TEND TO OVERTHINK GREATLY ! - as i said in upper line, i have such problem. i sometimes can misundertand your actions and overthink because of that. i can't help it, i'm just starting to doubt and blame myself, trying to understand what has happened, and usually from my experience - it irritates people. overthinking is wearing me down mentally really much!.. i'm sorry, be patient with me!
 
 ---- FANDOMS I'M IN
 - The Mandela Catalogue (INT WITH ME ABOUIT IT PLEASE!! IT IS CURRENTLY MY FAVORITE ONE! ^_^ )

@@ -50,3 +50,5 @@ other ponies i use are hiding no real, serious meaning as ones i noted here! the
 - Murder Drones
 
  and MAAAANY more, those are just ones im most active in! you can ask me for yours, if interested!!
+
+ thank you so much for reading this fully! have a nice time!! ^_^

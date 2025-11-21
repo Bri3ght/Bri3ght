@@ -15,7 +15,7 @@
 
  that's all ! i'm actually really friendly and willing to accomodate you. to be honest, you can call me a doormat.. ^_^"
 
- i have a flowering bouquet of personal problems in which i sometimes start to drown. what i say down is not even a half, but its important. i don't ask you to feel sorry or pity towards me, i'm just saying what my mental state isn't all flowers and rainbows.
+ i have a flowering bouquet of personal problems in which i sometimes start to drown. what i say down is not even a half, but it's important. i don't ask you to feel sorry or pitying towards me, i'm just saying what my mental state isn't all flowers and rainbows.
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 - ! I HEAVILY CLING TO PEOPLE I LIKE AND CONSIDER FRIENDS ! - if you're not ready for that or dislike such, then please, tell me. i'm just dependent person what desperately tries to save any connection with others i liked. if you ever choose to leave me, just tell me, and i'll understand. i don't have problems with letting go when i know why person chose to abandon me. but if you don't tell me, i may start this clinging thing again. :(

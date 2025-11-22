@@ -34,6 +34,7 @@ i like to show my mood though some of my ponies! this isn't a system, i just sha
 - Shedletsky (FS) - feeling good and do want others to sit with me, no matter if we know each other or not!
 - Mangosteen - i show what i seek comfort or already comfortable at the moment! though i'm not talkative when using this!!
 - Aventurine (HSR) - confident and usually in a good mood, only if mouth is present on the pony. when it's not - i'm feeling bad and don't even want to chat about my problems, just maybe seek any company only to sit with.
+- Harvey (BM) - practically being him with the people-pleasing thing. means i'm in a very good mood, all friendly and welcoming!
 
 other ponies i use are hiding no real, serious meaning as ones i noted here! the emotions there may be anything. the only thing what is not changing is IWEC factor. ^_^
 

@@ -29,7 +29,7 @@
 i like to show my mood though some of my ponies! this isn't a system, i just share how i feel at the moment by the pony i use!
 - Thomas (HWWHP) - i'm feeling down or sad. don't let the face fool you.
 - Skittles/Soren (HWWHP) - i'm irritated and/or angry at the moment. REALLY angry, i mean it.
-- Gabriel (TMC) - neutral! if face is hidden - i'm not in the chat with anyone currently, a little closed off (but you still can talk to me though!). but if open means im ingaged in some dialog and open to talk! (i never sit with open is alone!) ^_^  
+- Gabriel (TMC) - neutral! if face is hidden - i'm not in the chat with anyone currently, a little closed off (but you still can talk to me though!). but if open means im ingaged in some dialog and open to talk! (i never sit with open if alone!) ^_^  
 - Adam (TMC) - probably feeling tired and don't really want to chat at the moment.
 - Shedletsky (FS) - feeling good and do want others to sit with me, no matter if we know each other or not!
 - Mangosteen - i show what i seek comfort or already comfortable at the moment! though i'm not talkative when using this!!

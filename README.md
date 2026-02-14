@@ -38,14 +38,14 @@ main ones -
 - Harvey (BM) - practically being him with the people-pleasing thing. means i'm in a very good mood, all friendly and welcoming!
 
 usually positive! - 
-- Aventurine (HSR) - confidence
+- Aventurine (HSR) - confidence.
 - Brieght (OC) - generally good!
-- Lynn (KALPA) - just fine, almost neutral
+- Lynn (KALPA) - just fine, almost neutral.
 
 usually negative - 
 - Liche (OC) - just terrible.
-- Cosmo (DW) - depends
-- Affogato (CRK) - still talkable, a little
+- Cosmo (DW) - depends.
+- Affogato (CRK) - still talkable, a little.
 
 other ponies i use are hiding no certain and profound meaning as ones i noted here! the emotions there may be anything. the only thing what is not changing is IWEC factor. ^_^
 

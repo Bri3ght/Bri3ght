@@ -38,9 +38,9 @@ main ones -
 - Harvey (BM) - practically being him with the people-pleasing thing. means i'm in a very good mood, all friendly and welcoming!
 
 usually positive! - 
-- Aventurine (HSR) - confidence.
-- Brieght (OC) - generally good!
-- Lynn (KALPA) - just fine, almost neutral.
+- Aventurine (HSR) - confidence!
+- Brieght (OC) - generally good! ^_^
+- Lynn (KALPA) - just fine, almost neutral! 
 
 usually negative - 
 - Liche (OC) - just terrible.

@@ -27,6 +27,7 @@
 ---- PONIES!!!
 
 i like to show my mood though some of my ponies! this isn't a system, i just share how i feel at the moment by the pony i use!
+
 main ones - 
 - Thomas (HWWHP) - i'm feeling down or sad. don't let the face fool you.
 - Skittles/Soren (HWWHP) - i'm irritated and/or angry at the moment. REALLY angry, i mean it.

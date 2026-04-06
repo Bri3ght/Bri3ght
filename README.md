@@ -34,7 +34,7 @@ main ones -
 - Gabriel (TMC) - neutral! if face is hidden - i'm not in the chat with anyone currently, a little closed off (but you still can talk to me though!). but if open means im ingaged in some dialog and open to talk! (i never sit with open if alone!) ^_^  
 - Adam (TMC) - probably feeling tired and don't really want to chat at the moment.
 - Shedletsky (FS) - feeling good and do want others to sit with me, no matter if we know each other or not!
-- Telamon (FS) - pretty neutral, but depends. don't be bothered my the look, i'd like if ya sit with me, even if i'm already with someone!
+- Telamon (FS) - pretty neutral, but depends. don't be bothered by the look, i'd like if ya sit with me, even if i'm already with someone!
 - Mangosteen - i show what i seek comfort or already comfortable at the moment! though i'm not talkative when using this!!
 - Harvey (BM) - practically being him with the people-pleasing thing. means i'm in a very good mood, all friendly and welcoming!
 

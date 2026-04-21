@@ -29,15 +29,15 @@
 i like to show my mood though some of my ponies! this isn't a system, i just share how i feel at the moment by the pony i use!
 
 usually positive - 
-- Shedletsky (FS) - C + H, generally good
+- Shedletsky (FS) - C + H enc, generally good
 - Brieght (OC) - generally good 
 - Lynn (KALPA) - just fine, almost neutral
 - Harvey (BM) - pleasant
 - Aventurine (HSR) - confidence
-- Mangosteen - C + H, seek comfort
+- Mangosteen - C + H enc, seek comfort
 
 fully neutral - 
-- Telamon (FS) - C + H 
+- Telamon (FS) - C + H enc
 - Gabriel (TMC) 
 
 usually negative - 

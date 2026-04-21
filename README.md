@@ -6,7 +6,7 @@
 
  i'm a person what likes socialising and making some new contacts, but it may be really hard for me to find that first spark. 
  
- mostly sitting in one location with someone i know, but C+H is encouraged, if i'm being alone at the moment! anyways feel free to talk to me [ if my nickname doesn't say otherwise! ], just know what i can be vague at first! nonetheless i still will be trying to stay friendly and willing to help, even if all i can do is to offer my presence and listening ear! ^_^
+ mostly sitting in one location with someone i know, but C + H is encouraged, if i'm being alone at the moment! anyways feel free to talk to me [ if my nickname doesn't say otherwise! ], just know what i can be vague at first. nonetheless i still will be trying to stay friendly and willing to help, even if all i can do is to offer my presence and listening ear! ^_^
 
  despite myself trying to be polite and everything, i'm also easy to scare at first. as my DNI i can mark:
  + scary looking ponies (with big toothed mouths made of bandana item, for example),
@@ -28,31 +28,31 @@
 
 i like to show my mood though some of my ponies! this isn't a system, i just share how i feel at the moment by the pony i use!
 
-main ones - 
-- Thomas (HWWHP) - i'm feeling down or sad. don't let the face fool you.
-- Skittles/Soren (HWWHP) - i'm irritated and/or angry at the moment. REALLY angry, i mean it.
-- Gabriel (TMC) - neutral! if face is hidden - i'm not in the chat with anyone currently, a little closed off (but you still can talk to me though!). but if open means im ingaged in some dialog and open to talk! (i never sit with open if alone!) ^_^  
-- Adam (TMC) - probably feeling tired and don't really want to chat at the moment.
-- Shedletsky (FS) - feeling good and do want others to sit with me, no matter if we know each other or not!
-- Telamon (FS) - pretty neutral, but depends. don't be bothered by the look, i'd like if ya sit with me, even if i'm already with someone!
-- Mangosteen - i show what i seek comfort or already comfortable at the moment! though i'm not talkative when using this!!
-- Harvey (BM) - practically being him with the people-pleasing thing. means i'm in a very good mood, all friendly and welcoming!
+usually positive - 
+- Shedletsky (FS) - C + H, generally good
+- Brieght (OC) - generally good 
+- Lynn (KALPA) - just fine, almost neutral
+- Harvey (BM) - pleasant
+- Aventurine (HSR) - confidence
+- Mangosteen - C + H, seek comfort
 
-
-usually positive! - 
-- Aventurine (HSR) - confidence!
-- Brieght (OC) - generally good! ^_^
-- Lynn (KALPA) - just fine, almost neutral! 
+fully neutral - 
+- Telamon (FS) - C + H 
+- Gabriel (TMC) 
 
 usually negative - 
-- Liche (OC) - just terrible.
-- Cosmo (DW) - depends.
-- Affogato (CRK) - still talkable, a little.
+- ITrapped (FS) - depends. can be: neutral/anger/coldness/disdain/tiredness.
+- Cosmo (DW) - depends. can be: neutral/discomfort/slight irritation/tiredness.
+- Affogato (CRK) - depends. can be: tiredness/disdain.
+- Thomas (HWWHP) - sadness.
+- Skittles/Soren (HWWHP) - irritation, anger.
+- Adam (TMC) - tiredness.
+- Liche (OC) - generally terrible.
 
-other ponies i use are hiding no certain and profound meaning as ones i noted here! the emotions there may be anything. the only thing what is not changing is IWEC factor. ^_^
+other ponies i use are hiding no certain and profound meaning as ones i noted here
 
 ---- FANDOMS I'M IN
-- The Mandela Catalogue (INT WITH ME ABOUIT IT PLEASE!! IT IS CURRENTLY MY FAVORITE ONE! ^_^ )
+- The Mandela Catalogue 
 - Happy World With Happy People
 - Forsaken
 - Dandy's World

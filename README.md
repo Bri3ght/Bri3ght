@@ -24,7 +24,7 @@
 
 - ! I TEND TO OVERTHINK GREATLY ! - as i said in upper line, i have such problem. i sometimes can misundertand your actions and overthink because of that. i can't help it, i'm just starting to doubt and take the blame on myself, trying to understand what has happened, and usually from my experience - it irritates people. overthinking is wearing me down mentally really much!.. i'm sorry, be patient with me!
 
-- ! I MAY DISAPPEAR TIME TO TIME! ! - whenether my state worsens to the point i can barely keep up the chat, i ususally disappear and can text very dryly if we talk. the problem isn't with you, it's just me distancing because i no longer feel myself fine enough to continue chatting. it's either i disappear completely, or sit in silence. i also rarely visit pony town frequently, so i can vanish in the game too, sometimes for long periods of time.
+- ! I MAY DISAPPEAR TIME TO TIME! ! - whenether my state worsens to the point i can barely keep up the chat, i usually disappear and can text very dryly if we talk. the problem isn't with you, it's just me distancing because i no longer feel myself fine enough to continue chatting. it's either i disappear completely, or sit in silence. i also rarely visit pony town frequently, so i can vanish in the game too, sometimes for long periods of time.
 
 
 ---- PONIES!!!

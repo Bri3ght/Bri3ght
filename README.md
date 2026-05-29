@@ -15,13 +15,13 @@
  - bullying like a type of joke - i don't get it.
  - ones, who do not understand other people's problems and/or belittle them. - just no.
 
- that's all ! i'm actually friendly and willing to accomodate you. to be honest, you can even call me a doormat in some sense. ^_^"
+ that's all ! i'm actually friendly and willing to accomodate you
 
  i have diagnosed depression and is very sensitive at the moment. what i say down is not even a half, but it's important. i don't ask you to feel sorry or pitying towards me, i'm just saying what my mental state isn't all flowers and rainbows.
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 
-- ! I DON'T UNDERSTAND ACTIONS ! - no matter how many times i tried, i came to acknowledge in the end, what i can't understand those. if youre offended, angry at me, if i did something wrong, please, tell me directly, or at least hint with words! because whenether you just block me i start to blame myself heavily, doubting all my said words and taken actions, even if you just ignored me because of being in bad mood. i'm an understanding person and shall you just say what you're not in the mood for chatting - its fine, i'll leave you alone. please, just communicate with me. i hate overthinking ^_^"
+- ! I DON'T UNDERSTAND ACTIONS ! - no matter how many times i tried, i came to acknowledge in the end, what i can't understand those. if youre offended, angry at me, if i did something wrong, please, tell me directly, or at least hint with words! because whenether you just block me i start to blame myself heavily, doubting all my said words and taken actions, even if you just ignored me because of being in bad mood. i'm an understanding person and shall you just say what you're not in the mood for chatting - it's fine, i'll leave you alone. please, just communicate with me. i hate overthinking ^_^"
 
 - ! I TEND TO OVERTHINK GREATLY ! - as i said in upper line, i have such problem. i sometimes can misundertand your actions and overthink because of that. i can't help it, i'm just starting to doubt and take the blame on myself, trying to understand what has happened, and usually from my experience - it irritates people. overthinking is wearing me down mentally really much!.. i'm sorry, be patient with me!
 

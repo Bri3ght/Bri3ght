@@ -65,11 +65,14 @@ other ponies i use are hiding no certain and profound meaning as ones i noted he
 - The summer Hikaru died
 - Honkai: Star Rail
 - Bloodmoney
+- Bungou Stray Dogs
 - Mouthwashing
 - Pressure
 - KALPA
-- Doki Doki Literature Club
-- Murder Drones
+- Rusty Lake
+- Myth of The Machine
+- I Have No Mouth And I Must Scream
+- PHIGHTING 
 
  and MAAAANY more, those are just ones i'm most active in! you can ask me for yours, if interested!!
 

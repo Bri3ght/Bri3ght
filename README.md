@@ -6,7 +6,7 @@
 
  i'm a person what likes socialising and making some new contacts, but it may be really hard for me to find that first spark. 
  
- mostly sitting in one location with someone i know, but C + H is encouraged, if i'm being alone at the moment! anyways feel free to talk to me [ if my nickname doesn't say otherwise! ], just know what i can be vague at first. nonetheless i still will be trying to stay friendly and willing to help, even if all i can do is to offer my presence and listening ear! ^_^
+ mostly sitting in one location with someone i know, but C + H is encouraged, if i'm being alone at the moment! anyways feel free to talk to me [ if my nickname doesn't say otherwise! ], just know what i can be vague at first. nonetheless i still will be trying to stay friendly and willing to help, even if all i can do is to offer my presence and listening ear. ^_^
 
  despite myself trying to be polite and everything, i'm also easy to scare at first. as my DNI i can mark:
  - basics 
@@ -15,7 +15,7 @@
  - bullying like a type of joke - i don't get it.
  - ones, who do not understand other people's problems and/or belittle them. - just no.
 
- that's all ! i'm actually friendly and willing to accomodate you
+ that's all ! i'm actually friendly and willing to accomodate you, might be just too shy to approach first.
 
  i have diagnosed depression and is very sensitive at the moment. what i say down is not even a half, but it's important. i don't ask you to feel sorry or pitying towards me, i'm just saying what my mental state isn't all flowers and rainbows.
 

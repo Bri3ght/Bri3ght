@@ -13,10 +13,11 @@
  - ones, who would try to seek any romance w me. - i don't want to, thx.
  - too straightforward people - aren't fully DNI, but it may be really hard for us to find a common ground
  - bullying like a type of joke - i don't get it.
+ - ones, who do not understand other people's problems and/or belittle them. - just no.
 
  that's all ! i'm actually friendly and willing to accomodate you. to be honest, you can even call me a doormat in some sense. ^_^"
 
- i have a flowering bouquet of personal problems in which i sometimes start to drown. what i say down is not even a half, but it's important. i don't ask you to feel sorry or pitying towards me, i'm just saying what my mental state isn't all flowers and rainbows.
+ i have diagnosed depression and is very sensitive at the moment. what i say down is not even a half, but it's important. i don't ask you to feel sorry or pitying towards me, i'm just saying what my mental state isn't all flowers and rainbows.
 
 ---- SOME IMPORTANT THINGS I ADVISE TO READ BEFORE GETTING CLOSE WITH ME
 

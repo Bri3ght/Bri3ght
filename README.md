@@ -52,6 +52,7 @@ usually negative -
 - Skittles/Soren (HWWHP) - irritation, anger.
 - Adam (TMC) - tiredness.
 - Liche (OC) - generally terrible.
+- Lawrence (BTD2) - generally bad.
 
 other ponies i use are hiding no certain and profound meaning as ones i noted here
 
